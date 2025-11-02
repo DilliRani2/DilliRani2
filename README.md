@@ -1,4 +1,4 @@
-## Hi, I'm Dillirani 👋
+## Hi, I'm Dilli 👋
 
 Information Technology student at MSAJCE<br/>
 🎓 I'm a student who loves exploring technology and creative ideas.<br/>
